@@ -6,7 +6,7 @@
 
 ## Integrantes do Grupo
 
-- Nome Completo - Matrícula
+- Guilherme Araujo Castro - 10427775
 - Nome Completo - Matrícula
 - Nome Completo - Matrícula
 - Nome Completo - Matrícula
