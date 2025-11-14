@@ -7,7 +7,7 @@
 ## Integrantes do Grupo
 
 - Guilherme Araujo Castro - 10427775
-- Nome Completo - Matrícula
+- Rafael de Souza Alves de Lima - 10425819
 - Nome Completo - Matrícula
 - Nome Completo - Matrícula
 
