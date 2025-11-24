@@ -8,7 +8,7 @@
 
 - Guilherme Araujo Castro - 10427775
 - Rafael de Souza Alves de Lima - 10425819
-- Nome Completo - Matrícula
+- Caio Henrique Santos Carvalho - 10425408
 - Nome Completo - Matrícula
 
 ---
