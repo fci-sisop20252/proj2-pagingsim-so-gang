@@ -9,7 +9,7 @@
 - Guilherme Araujo Castro - 10427775
 - Rafael de Souza Alves de Lima - 10425819
 - Caio Henrique Santos Carvalho - 10425408
-- Nome Completo - Matrícula
+- Lendy Naiara Carpio Pacheco - 10428525
 
 ---
 
